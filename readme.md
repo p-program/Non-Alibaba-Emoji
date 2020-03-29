@@ -17,7 +17,6 @@
 ### HRG
 
 ![](/HRG/3.25警告一次.png)
-
 ![](/HRG/阿里hrg.gif)
 ![](/HRG/HRG-beat.jpg)
 ![](/HRG/摸鱼.jpg)
@@ -27,13 +26,11 @@
 ### PM
 
 ![](/PM/产品经理出来.gif)
-
 ![](/PM/什么破需求.jpg)
 
 ### 隐藏BOSS
 
 ![](ma-yun.jpg)
-
 ![](王坚给你鼓掌.gif)
 
 
