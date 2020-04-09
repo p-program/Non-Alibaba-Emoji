@@ -50,6 +50,10 @@
 ![](/PM/产品经理出来.gif)
 ![](/PM/什么破需求.jpg)
 
+### 传统异能
+
+![](/culture/changing.gif)
+
 ### 隐藏BOSS
 
 ![](/boss/ma-yun.jpg)
