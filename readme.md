@@ -53,6 +53,9 @@
 ### 传统异能
 
 ![](/culture/changing.gif)
+![](/culture/CUSTOMERS-FIRST, EMPLOYEES-SECOND.gif)
+![](/culture/If-not-me-who?.jpg)
+
 
 ### 隐藏BOSS
 
