@@ -55,7 +55,7 @@
 ![](/culture/changing.gif)
 ![](/culture/CUSTOMERS-FIRST-EMPLOYEES-SECOND.gif)
 ![](/culture/If-not-me-who.jpg)
-
+![](/culture/trust.jpeg)
 
 ### 隐藏BOSS
 
