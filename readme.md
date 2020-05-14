@@ -52,6 +52,8 @@
 
 ### 传统异能
 
+![](/culture/今天最好的表现是明天最低的要求.jpg)
+![](/culture/认真生活快乐工作.jpg)
 ![](/culture/changing.gif)
 ![](/culture/CUSTOMERS-FIRST-EMPLOYEES-SECOND.gif)
 ![](/culture/If-not-me-who.jpg)
