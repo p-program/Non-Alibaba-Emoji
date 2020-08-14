@@ -35,7 +35,6 @@
 ![](/HRG/阿里hrg.gif)
 ![](/HRG/HRG-beat.jpg)
 ![](/HRG/摸鱼.jpg)
-![](/HRG/HRG-beat.jpg)
 ![](/HRG/HRG上线.gif)
 
 ### KPI
